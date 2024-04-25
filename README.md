@@ -1,1 +1,1 @@
-fell free to use that To-Do-App
+feel free to use that To-Do-List Project
